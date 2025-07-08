@@ -1,1 +1,0 @@
-# francisrosenfeld.github.io
